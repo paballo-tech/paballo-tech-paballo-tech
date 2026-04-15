@@ -52,7 +52,7 @@ Currently working on projects in:
 
 ## 📫 Contact Me
 
-- Email: your@email.com  
-- LinkedIn: (add later)
+- Email: paballomamabolo7@gmail.com  
+
 
 ---
